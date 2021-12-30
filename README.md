@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Finna-Syukriani
 - 👀 I’m interested in something trigger me
-- 🌱 I’m currently learning basic one of program languages
+- 🌱 I’m currently learning one of program languages
 - 💞️ I’m looking to collaborate on everyone, hopefully we can collaborate
 - 📫 How to reach me, zzzz, 404 error
 
